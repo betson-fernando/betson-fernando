@@ -8,6 +8,8 @@ An enthusiast of Physics, Astronomy, Mathematics and Computer Science:
 
 Crime Scene Investigator: "Science for Justice".
 
+"Blessed are they which do hunger and thirst after righteousness: for they shall be filled" 📖
+
 Interests in real world simulation, A.I., Data Science, and of course, coding 😉
 
 ## Badges
