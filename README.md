@@ -1,5 +1,6 @@
 ### ABOUT ME
-Name: Betson Fernando, glad
+Name: Betson Fernando, glad.
+
 Country: Brazil 🌊⛺🇧🇷
 
 An enthusiast of Physics, Astronomy, Mathematics and Computer Science:
